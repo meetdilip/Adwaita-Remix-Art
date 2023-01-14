@@ -1,2 +1,2 @@
 # Adwaita-Remix-Art
-My work for Adwaita Remix
+My art work for Adwaita Remix
